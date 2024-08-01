@@ -7,7 +7,7 @@
 - lisleycastelo@prof.educacao.sp.gov.br  
 - 😄 Pronomes: ela, dela
 - ⚡
-- ![](https://media1.tenor.com/m/nRny23jAkrgAAAAd/mordecai-band.gif
+- ![](https://media1.tenor.com/m/nRny23jAkrgAAAAd/mordecai-band.gif)
 
 
 <!---
