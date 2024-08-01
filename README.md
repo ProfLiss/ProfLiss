@@ -6,7 +6,8 @@
 - lisleycastelo@professor.educacao.sp.gov.br
 - lisleycastelo@prof.educacao.sp.gov.br  
 - 😄 Pronomes: ela, dela
-- ⚡ Curiosidade: ...
+- ⚡ 
+https://media1.tenor.com/m/nRny23jAkrgAAAAd/mordecai-band.gif
 
 <!---
 ProfLiss/ProfLiss is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
