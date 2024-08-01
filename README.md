@@ -8,6 +8,8 @@
 - 😄 Pronomes: ela, dela
 - ⚡
 - ![](https://media1.tenor.com/m/nRny23jAkrgAAAAd/mordecai-band.gif)
+- ![]()![image](https://github.com/user-attachments/assets/26d67b3e-6d01-4abc-8eb7-0ee632b27275)
+
 
 
 <!---
