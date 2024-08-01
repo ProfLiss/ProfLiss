@@ -1,6 +1,6 @@
 - 👋 Olá, me chamo Lisley e sou professorra de Física e Tecnologia
 - 👀 Atualmente, tabalho na Escola PEI Leonardo Vilas Boas, na cidade de Osasco/SP
-- 🌱 Estou aprendendo junto com meus alunos a trabalhar essas plataformas que vem surgindo ao longo do curso no alura, neste ano letivo de 2024.
+- 🌱 Estou aprendendo junto com meus alunos a trabalhar essas novas plataformas de edição que vem surgindo ao longo do curso no alura neste ano letivo de 2024.
 - 💞️ Estou procurando colaborar em me aperfeiçoar nos usos das plataformas para auxiliar meus alunos no decorrer de seu curso.
 - 📫 Como entrar em contato comigo
 - lisleycastelo@professor.educacao.sp.gov.br
